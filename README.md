@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: idk i'm up for whatever
 - 📫 How to reach me: yea you'd wish i'd tell u huh
 - 😄 Pronouns: Giorno/Giovanna
-- ⚡ Fun fact: Idk, college's hard, i didn't sign up for this, i mean i could do great but i kinda wanna do what makes me happy, idk i just wanna get some experience, learn some things and escape from this hellish education system that doesn't teach u anythin and just takes everything man, it's awful, it leaves you without any motivation and kills whatever dreams you could have of achieving anything or doing whatever, i'm trying but it's so hard :(
+- ⚡ Fun fact: As i said b4, got great ideas on hold until I got a more stable schedule (rn college's got my time all messed up). Hopefully it'll get better on that front when I finish and find an internship or a job
 
 <!---
 fracalrod3/fracalrod3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
