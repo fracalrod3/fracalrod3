@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fracalrod3
-- 👀 I’m interested in: Python, JavaScript, HTML, Django, and many things! But also games, design and I have many ideas on hold.
+- 👀 I’m interested in: Python, JavaScript, Spring Framework, Django, and many things! But also games, design and I have many ideas on hold.
 - 🌱 I’m currently learning: A lotta things, currently looking for an internship!
 - 💞️ I’m looking to collaborate on: idk i'm up for whatever
 - 📫 How to reach me: [linkedin](https://www.linkedin.com/in/francisco-javier-calder%C3%B3n-rodr%C3%ADguez-47620932b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
